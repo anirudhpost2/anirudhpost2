@@ -1,6 +1,6 @@
 ## Hi, I am Anirudh
 
-🏫 Computer Engineering Student at UGA
+🏫 2nd-year Computer Science Student at UGA
 
 
 
